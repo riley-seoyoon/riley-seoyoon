@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## 🖤🤍💜
+## 🖤🤍💜°˖✧◝(⁰▿⁰)◜✧˖°💜🤍🖤
 
 <!--
 **sypark030/sypark030** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
